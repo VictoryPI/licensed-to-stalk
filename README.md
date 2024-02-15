@@ -1,2 +1,3 @@
 # licensed-to-stalk
 Hiding In Plain Sight - Surveillance - Covert Gumshoe Sleuthing
+The industry term for blending into your environment is "hiding in plain sight". Disguises are not really a trick of the trade, rather just appearing normal or unassuming. Women can be especially good at this for various reasons, but the biggest reason is that private investigatio is a male dominated field. Looking for a Private Investigator? Just search on Google:  <p><a href="https://victorypi.com">Private Investigator Near Me</a></p> and you will be directed to a list of them Chose wisely, however... Not every PI is created equally ;)
